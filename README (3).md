@@ -13,7 +13,7 @@
 ## Linkdin Profile
 For any queries regarding about this project contact me
 
-Link : https://www.linkedin.com/in/anil-l-b023631b6/
+https://www.linkedin.com/in/arpit-kumar-cgu/
 
 ## Video Demo
 
